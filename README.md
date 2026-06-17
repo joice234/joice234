@@ -1,4 +1,4 @@
-hi im joice
+HI I'M JOICE
 
 ## About Me
 
